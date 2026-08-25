@@ -11,8 +11,8 @@
 ---
 
 <p>
-  <img align="left" src="https://64.media.tumblr.com/42bf3d6fcbbc9de3fc6c1c3a944a428e/0626b2df96bab0a8-6f/s1280x1920/5f1a91f75be3b3b94e2e3733e1afddccc05009c6.pnj" width="290">
-  <img align="right" src="https://64.media.tumblr.com/960f3cc0d331e88d8a42f52c35f82b95/05c5203e73550b05-3a/s400x600/2021c47780d5625c06f45f5dacb6612d657d9b19.pnj" width="300">
+  <img align="left" src="https://64.media.tumblr.com/42bf3d6fcbbc9de3fc6c1c3a944a428e/0626b2df96bab0a8-6f/s1280x1920/5f1a91f75be3b3b94e2e3733e1afddccc05009c6.pnj" width="250">
+  <img align="right" src="https://64.media.tumblr.com/960f3cc0d331e88d8a42f52c35f82b95/05c5203e73550b05-3a/s400x600/2021c47780d5625c06f45f5dacb6612d657d9b19.pnj" width="250">
 
 
 <b><u>── ˖ ࣪ ✩ INTERESTS ✩ ࣪ ˖ ──</u></b><br>
