@@ -15,27 +15,27 @@
   <img align="right" src="https://64.media.tumblr.com/960f3cc0d331e88d8a42f52c35f82b95/05c5203e73550b05-3a/s400x600/2021c47780d5625c06f45f5dacb6612d657d9b19.pnj" width="250">
 
 
-  <b><u>── ˖ ࣪ ✩ INTERESTS ✩ ࣪ ˖ ──</u></b><br>
-  <br>Transformers, Fallout, Mr Osomatsu, UTMV, R&M, Vocaloid, Rainworld, & More.<br>
- ...Cooking, Astronomy, Avians, and Art<br>
- I <ins>LOVE</ins> Horror Media !! ![star](https://64.media.tumblr.com/70ee26ba9db3c7fc653ea069472de607/92e79a3eaa9f0295-31/s75x75_c1/52c0ff2ddedc6f16eaa5f66f5bb88d558767b71c.gifv) ![fear](https://pix.crd.co/assets/images/gallery12/a0054911_original.gif?v=15eb4270)<br>
+<b><u>── ˖ ࣪ ✩ INTERESTS ✩ ࣪ ˖ ──</u></b><br>
+<br>Transformers, Fallout, Mr Osomatsu, UTMV, R&M, Vocaloid, Rainworld, & More.<br>
+...Cooking, Astronomy, Avians, and Art<br>
+I <ins>LOVE</ins> Horror Media !! ![star](https://64.media.tumblr.com/70ee26ba9db3c7fc653ea069472de607/92e79a3eaa9f0295-31/s75x75_c1/52c0ff2ddedc6f16eaa5f66f5bb88d558767b71c.gifv) ![fear](https://pix.crd.co/assets/images/gallery12/a0054911_original.gif?v=15eb4270)<br>
 <br>
 
 <div align="center">
 <details >
-  <summary>$\Large \text{Party}$</summary>
+<summary>$\Large \text{Party}$</summary>
 
 [@suujimatsu](https://github.com/suujimatsu) , [@mori-frost](https://github.com/Mori-frost) , [@nirilith](https://github.com/Nirilith) , [@curtainbags](https://github.com/curtainbags) , [@decayingcrow](https://github.com/decayingcrow) , [@ariiaskelii](https://github.com/Ariiaskelii) , [@bradleybain](https://github.com/bradleybain) ! 
     
 </details><br clear="all">
 
 <p> 
-  <b><u>── ˖ ࣪ ⊹ DNI ⊹ ࣪ ˖ ──</u></b><br>
-  <br>Support AI "art" tracing or theft<br>
-  Are rude, creepy, egotistical, or disrespectful<br>
-  Under 16 (unless strictly for comms)<br>
-  Vivziepop/Dream Stans<br>
-  Pedos, zoos, or any pro-c "MAP" garbage
+<b><u>── ˖ ࣪ ⊹ DNI ⊹ ࣪ ˖ ──</u></b><br>
+<br>Support AI "art" tracing or theft<br>
+Are rude, creepy, egotistical, or disrespectful<br>
+Under 16 (unless strictly for comms)<br>
+Vivziepop/Dream Stans<br>
+Pedos, zoos, or any pro-c "MAP" garbage
 </p> 
 
 ---
