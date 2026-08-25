@@ -16,7 +16,7 @@
 
 
   <b><u>── ˖ ࣪ ✩ INTERESTS ✩ ࣪ ˖ ──</u></b><br>
-  <br>Transformers, Fallout, Mr Osomatsu, UTMV, R&M, Vocaloid, Rainworld, Eddswold, and More.<br>
+  <br>Transformers, Fallout, Mr Osomatsu, UTMV, R&M, Vocaloid, Rainworld, & More.<br>
  ...Cooking, Astronomy, Avians, and Art<br>
  I <ins>LOVE</ins> Horror Media !! ![star](https://64.media.tumblr.com/70ee26ba9db3c7fc653ea069472de607/92e79a3eaa9f0295-31/s75x75_c1/52c0ff2ddedc6f16eaa5f66f5bb88d558767b71c.gifv) ![fear](https://pix.crd.co/assets/images/gallery12/a0054911_original.gif?v=15eb4270)<br>
 <br>
